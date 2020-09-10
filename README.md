@@ -23,6 +23,7 @@
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Georgia/blob/master/GDOT-CAM-SR3-14.9.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Georgia/blob/master/GDOT-CAM-SR8-4.1.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Georgia/blob/master/portrait.jpg)
+![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Georgia/blob/master/skyline.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Georgia/blob/master/snapshot.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Georgia/blob/master/south_0.jpg)
 ![AJJAIDAVE-StoryAuthorEngine-](https://github.com/StateDocuments/Georgia/blob/master/SPAL-CAM-001.jpg)
